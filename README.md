@@ -9,6 +9,7 @@
 - 📫 Vous pouvez me contacter via les canaux suivants :
 
 Discord: Floppas
+
 Email: lelinxfloppa@gmail.com
 
 Connectons-nous et créons quelque chose d'incroyable ensemble !
